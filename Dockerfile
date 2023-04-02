@@ -27,3 +27,6 @@ dsvbgjjgjjgdjdgjkdg
 hi manasa
 where r u now 
 can i see your pic
+present i am in hyderabad
+i will chat u later
+bye take care
